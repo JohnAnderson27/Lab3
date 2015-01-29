@@ -1,3 +1,6 @@
 # Lab3
+suuuuup
+HIIIIIII
+yooooooo
+woooooooo
 
-This is the Read ME. Blah Blah Blah
